@@ -9,4 +9,4 @@ I'm Robin Allenson. My day job is co-founder and
 
 In the past, I founded, ran and then sold InnerBalloons to [Yext](http://yext.com) and before that, I held leadership roles at Truvo and Razorfish. A long time ago, I did a joint honours in Artificial Intelligence and Computer Science at Edinburgh University, when it was still mostly philosophy. 
 
-I am interested in AI, the philosophy of consciousness, knowledge and perception, entrepreneurship, art, creativity and how to make people more awesome.
+I am interested in AI; the philosophy of consciousness, knowledge and perception; entrepreneurship; art and creativity; and how to make people more awesome.
