@@ -1,0 +1,3 @@
+The mind is a expectation machine. Expectations, not predictions. Expecting requires beliefs or understanding about sensations. Understanding requires giving layers of meaning. Giving meaning is a fundamental part of the human experience. The human experience is built up from a skilful activity to 'make sense' of the world, both to sense and to make and to add meaning.
+
+The brain is not building a representation of the world, it's building an-ever changing set of expectations about _what_changes_ in the world.

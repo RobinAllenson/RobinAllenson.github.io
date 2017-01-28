@@ -1,0 +1,9 @@
+Consciousness
+
+In a meditative state it clearer to me how my thoughts appear and disappear. The gaps between my thoughts become clearer. And as they become clearer I see that it's turtles all the way down. At higher levels of awareness there are more I'm more aware of the gaps between thoughts but these are not nothing but gaps of potential.
+
+What is miraculous about consciousness is not that it is discrete and moment to moment but its apparent continuity. This gap between how thinking is and how our thinking appears to be is a source of continual revelation for me. One should never either underestimate the capacity for human delusion or for increasing understanding of our awareness: there is no limit in either direction. However, once you have a deeper understanding of how your moment-to-moment experience is formed, it's also simpler to be aware of what is actually happening when your experience appears to be a faster and faster stream of reality.
+
+Alva Noë writes in "Action in Perception" (p54) "Edelamn had written, "One of the most striking things about consciousness is its continuity" (1989, 119). Dennett writes in response: "This is utterly wrong. One of the most striking features about consciousness is its discontinuity -- as revealed in the blind spot, and saccadic gaps, to take the simplest examples. The discontinuity of consciousness is striking because the _apparent_ continuity of consciousness (Daniel Dennett in "Consciousness explained" in 1991, p356).
+
+This remark makes very clear that the wory is about the nature of experience or consciousness itself. Dennett's claim is that we are misled as to the true nature of consciousness. Consciousness is _really_ discontinuous. It _appears_ to be continuous. A paradoxical way to put the point would be: It turns out that we are mistaken in our assessment of how things seems to us [to] be. This is a skeptical proposal more radical than anything Descartes would have found intelligble". 
