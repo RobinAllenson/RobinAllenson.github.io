@@ -1,6 +1,6 @@
 # State changes
 
-State changes is the name I give to whenever you need to start or stop something. There are also a secret super-power that few people seem to understand.
+State changes is the name I give to whenever you need to start or stop something. They are also a secret super-power that few people seem to understand.
 
 There are many things which people want to do and know _should_ be good for them, but for some reason they just can’t get into it. State change is a simple and effective way in.
 
