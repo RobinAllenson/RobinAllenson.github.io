@@ -1,5 +1,3 @@
-On the apparent continuity of consciousness
-
 In a clear state of mind, it easier to see how thoughts appear and disappear. I can feel the gaps inbetween my thoughts. The gaps are not empty, but full of potential. What is amazing is not that there are discrete thoughts and spaces in between but that in our everyday experience we are not aware of this.
 
 The world around me appears static and persistent despite the fact that it requires my skilful sensing to understand the sensations I receive in bursts. 
