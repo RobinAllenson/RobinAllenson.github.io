@@ -8,7 +8,7 @@ The late Daisetz Taitaro Suzuki, Professor of Buddhist Philosophy in Otani Unive
 
 > Take heed to keep it always clean
 
-> And let not dust collect up on it
+> And let not dust collect upon it
 
 Hui-Neng wrote:
 
