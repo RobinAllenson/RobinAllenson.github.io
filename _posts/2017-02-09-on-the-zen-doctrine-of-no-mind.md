@@ -2,10 +2,10 @@ I was listening to the "Daily Calm" yesterday. "Calm", one of my favourite apps,
 
 The late Daisetz Taitaro Suzuki, Professor of Buddhist Philosophy in Otani University in Kyoto, wrote the lovely book "The Zen Doctrine of No Mind", "An examination of the purpose and technique of Zen training based upon the teaching of the eighth-century master Hui-neng". The start of the book is given to explaining the differences between the Southern School of Zen and Hui-Neng's Northern School. Shen-Hsiu, the leader of the Southern school, wrote
 
-> The body is the Bodhi-tree
-> The mind is like the mirror bright
-> Take heed to keep it always clean
-> And let not dust collect up on it
+  The body is the Bodhi-tree
+  The mind is like the mirror bright
+  Take heed to keep it always clean
+  And let not dust collect up on it
 
 Hui-Neng wrote:
 
