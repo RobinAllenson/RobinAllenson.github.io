@@ -13,8 +13,11 @@ The late Daisetz Taitaro Suzuki, Professor of Buddhist Philosophy in Otani Unive
 Hui-Neng wrote:
 
 > There is no Bodhi-tree
+
 Nor stand of mirror bright
+
 Since all is void
+
 Where can the dust alight
 
 "'From the first not a thing is' this was the first proclamation made by Hui-Neng. It is a bomb thrown into the camp of Shen-Hsiu and his predecessors".
