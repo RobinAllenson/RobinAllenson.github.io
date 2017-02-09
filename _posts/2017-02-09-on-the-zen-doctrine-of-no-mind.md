@@ -14,11 +14,11 @@ Hui-Neng wrote:
 
 > There is no Bodhi-tree
 
-Nor stand of mirror bright
+> Nor stand of mirror bright
 
-Since all is void
+> Since all is void
 
-Where can the dust alight
+> Where can the dust alight
 
 "'From the first not a thing is' this was the first proclamation made by Hui-Neng. It is a bomb thrown into the camp of Shen-Hsiu and his predecessors".
 
